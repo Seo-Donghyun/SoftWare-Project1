@@ -1,2 +1,2 @@
-20223091 Seo Dong Hyun
+20223091    Seo Dong Hyun
 Kookmin Univ. SW
